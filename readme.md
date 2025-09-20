@@ -1,1 +1,1 @@
-Ninja
+Why are you gay?

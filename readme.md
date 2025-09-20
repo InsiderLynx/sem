@@ -1,1 +1,1 @@
-Why are you gay
+Why are you gay?
